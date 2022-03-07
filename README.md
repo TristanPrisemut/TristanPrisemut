@@ -2,7 +2,7 @@
 
 #### I'm a Minecraft and Tool Developer living in Germany.
 
-##### Future plans
+##### FUTURE PLANS
 - 🏫 I'm currently working on getting my high school diploma
 
 ##### BIO
