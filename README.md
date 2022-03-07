@@ -3,6 +3,7 @@
 #### I'm a Minecraft and Tool Developer living in Germany.
 
 ##### Future plans
+- 🏫 I'm currently working on getting my high school diploma
 
 ##### BIO
 - 🏢 I'm currently working for **HorizonBlocks** and **SquareDreams**
