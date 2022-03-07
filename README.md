@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-#### I'm a Minecraft and Tool Developer living in Germany. I still go to school and in my free time, when I don't work, I shoot📸 and play music🎵
+#### I'm a Minecraft and Tool Developer living in Germany. I still go to school, and love games and music!
 
 # 
 
