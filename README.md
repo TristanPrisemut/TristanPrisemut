@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 🦦
 
 #### I'm a Minecraft and Tool Developer living in Germany. I still go to school, and love games and music!
 
